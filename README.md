@@ -1,2 +1,2 @@
-# revista
+# Revista
 Revista de perfumes
