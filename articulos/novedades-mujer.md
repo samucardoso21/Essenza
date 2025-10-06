@@ -40,4 +40,4 @@ Las nuevas fragancias de 2025 comparten un hilo común: la búsqueda de autentic
 
 ---
 
-*Artículo escrito por el equipo editorial de la Revista de Perfumes, 2025.*
+*Artículo escrito por el equipo editorial de la Revista Essenza de Perfumes, 2025.*
